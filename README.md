@@ -1,2 +1,4 @@
 # ProjectDemocracy
-I am one who is no one
+India is Democracy
+USA is Democracy
+Pakistan is NOT a Democracy
